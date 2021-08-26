@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LuneBleu
-- 👀 I’m interested in assisting with lunar missions.
+- 👀 I’m interested in lunar missions.
 - 🌱 I’m currently learning the art of flambé.
 - 💞️ I’m looking to collaborate on any Ark projects.
 - 📫 How to reach me: BlueMoonHelpDesk@gmail.com
